@@ -1,3 +1,4 @@
 # test1_helloworld
-1st github thing...?
-kinda nervous lol
+I am unreasonably nervous all the time
+I fucking hate my life, ecxept I don't?
+goddamnit i should get some sleep
